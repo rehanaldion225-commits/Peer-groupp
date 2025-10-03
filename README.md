@@ -4,7 +4,7 @@
 
 👨‍👩‍👦‍👦 Nama Kelompok:
 1. Raehan Aldion H. (2557071011) 
-2. Muhammad Ferdinan Tamaam
+2. Muhammad Ferdinan Tamaam (2557071016)
 3. Ahmad Zidan (2557071013)
 4. Abdurrahman
 
